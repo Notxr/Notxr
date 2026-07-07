@@ -1,2 +1,1 @@
-Hello I am anonymous normal coder :D
-
+Anonyomus Turkish developer 
