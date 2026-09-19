@@ -1,1 +1,1 @@
-Anonyomus Turkish developer 
+Anonyomus developer 
